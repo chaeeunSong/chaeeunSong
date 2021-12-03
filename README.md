@@ -1,6 +1,6 @@
 ### Hi there 👋😀
 
-🌱 I’m currently learning ... </br>
+🌱 I am currently learning and working.... </br>
 I hope to develop every beautiful things.✨
 
 
